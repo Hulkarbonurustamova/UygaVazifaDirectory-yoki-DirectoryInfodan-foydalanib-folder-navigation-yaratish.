@@ -1,0 +1,1 @@
+# UygaVazifaDirectory-yoki-DirectoryInfodan-foydalanib-folder-navigation-yaratish.
